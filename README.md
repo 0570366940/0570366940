@@ -1,3 +1,6 @@
+![Wi-Fi_QR_code_Alotaibi 2](https://github.com/0570366940/0570366940/assets/89000678/e220955c-cf97-4813-ac2e-9316f4cd9090)
+![Screenshot_٢٠٢٤٠٥٢٧-٠٣١٣٠٤_Skype](https://github.com/0570366940/0570366940/assets/89000678/63b8bcc0-5845-4fd0-8f26-f4856869cb7f)
+![1fb933cc04b2f4484aa96982dea08ede09f3212f498f521348b06d5e66025303 0](https://github.com/0570366940/0570366940/assets/89000678/ab2951de-afd8-426f-bc5d-32ed5c6750bd)
 - 👋 Hi, I’m @0570366940
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
